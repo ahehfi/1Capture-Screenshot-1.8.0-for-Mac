@@ -1,0 +1,1 @@
+# 1Capture-Screenshot-1.8.0-for-Mac
